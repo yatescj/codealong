@@ -1,3 +1,3 @@
 ##README
-This is so confusing ahhhhhh
-My brain hurts 
+This is so confusing ahhhhhh what is happening 
+My brain hurts
